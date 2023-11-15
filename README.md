@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lagatMathew
 - 👀 I’m interested in ...coding
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently studying ...
 - 💞️ I’m looking to collaborate on ...coding projects
 - 📫 How to reach me ...+254111689782
 
